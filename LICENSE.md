@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with stealth Scripts for king legacy, the #1 Script. Includes instant win and auto-sell for unbeatable
 
 
 
